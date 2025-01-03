@@ -1,0 +1,1 @@
+prmeiros exercicios do apredizado
